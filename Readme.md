@@ -1,1 +1,1 @@
-Esse diretorio esta sendo usando para estudo de JavaScript
+Esse diretorio esta sendo usando para estudo de JavaScript  jgjdfjghdlfigdjkfgh 
